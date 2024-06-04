@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning Engineering.
 - 💞️ I’m looking to collaborate on Invention and Innovation.
 - 📫 How to reach me: my telegram: @agimmnn70
-- 😄 Pronouns: Das Leben fuer Verwirklichung aller Projekten ist ziemlich kurz.
+- 😄 Pronouns: Das Leben fuer die Verwirklichung aller Projekten ist ziemlich kurz.
 - ⚡ Fun fact: im Einkauf beschaeftigter Mekatroniker.
 
 <!---
